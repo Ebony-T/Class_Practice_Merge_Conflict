@@ -9,3 +9,13 @@ Stop being rational, all i wanted was a black grand national. turn his tv off, t
 
 
 we are currently doing in class activity which is about the conflicts in merging in the github.
+
+This is for practice.
+
+Jack and jill went up the hill
+
+to fetch a pail of water
+
+Jack fell down and broke his crown
+
+and Jill came tumbling after.
